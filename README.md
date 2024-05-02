@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @The47thMaster
+- 👀 I’m interested in video games
+- 🌱 I’m currently learning coding
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: Im bad at life
